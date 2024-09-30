@@ -27,6 +27,6 @@ If you want another text in bomber you need to pay me some money. So. Press **Y*
 
 I think thats all, what you need to know. Remember, just `jes`
 
-##Buy me a coffee
+## Buy me a coffee
 
 TON: _UQCsoUkvrDykaeGJ_pCTakgrkr1zQ9KB4HKylmsR-g6y1Gtf_
